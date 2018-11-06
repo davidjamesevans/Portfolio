@@ -5,7 +5,7 @@ It’s not exhaustive, but a good representation of what I do. If you're here, t
 
 [![Rapha Rides Los Angeles](https://imgur.com/bT6aUkV.png)](https://vimeo.com/230586645 "Click me to watch")
 
-Strong candidate for the most fun I've had while being paid. Responsibilities included: creating the international Rapha Rides video brief; identifying the talent and concept for the six America shoots; leading prelimary interviews; art direction; leading the edit process between the director and brand-side creatives; a lot of driving. Los Angeles is linked above, and here's [New York](https://vimeo.com/221714081), [Seattle](https://vimeo.com/226391195), [Boulder](https://vimeo.com/215321383), [San Francisco](https://vimeo.com/215821947), and [Chicago](https://vimeo.com/229344370).
+This project is the most fun I've had while being paid. Responsibilities included: creating the international Rapha Rides video brief; identifying the talent and concept for the six American shoots; leading prelimary interviews; art direction; leading the edit process between the director and brand-side creatives; a lot of driving. Los Angeles is linked above, and here's [New York](https://vimeo.com/221714081), [Seattle](https://vimeo.com/226391195), [Boulder](https://vimeo.com/215321383), [San Francisco](https://vimeo.com/215821947), and [Chicago](https://vimeo.com/229344370).
 
 ### Mondial Magazine
 
@@ -19,7 +19,15 @@ Articles on the history of Cyclocross (the world's greatest sport), the design o
 
 Art Director of Rapha's 2017 RCC Shoots, one in upstate [New York](https://www.rapha.cc/gb/en/stories/club-calling), spinning around the Catskills, the other in the [Lake District](https://www.rapha.cc/gb/en/stories/lakes-of-grey). The models were sourced from the RCC (aka the Rapha Cycling Club), representing chapters from around the world.
 
+### Dotwatcher.cc
+
+![All the dots worth watching](https://imgur.com/U26Fcsi.png)
+
+Project leader for the creation of Dotwatcher.cc, the online home for bikepacking coverage, from concept to launch. My responsibilities included: briefs and creative direction of the site; establishing brand tone and style guides; managing outside resources including programmers, writers, graphic designers, and testers.
+
 ### Theatres of Cross, Rapha
+
+![Theatres of Cross, Ben Ingham](https://imgur.com/uvRR589.png)
 
 I accompanied photographer Ben Ingham to France and Belgium, where we visited some of cyclocross's most storied and celebrated courses. The resulting exhibiton was shown at Rapha Clubhouses around the world.
 
