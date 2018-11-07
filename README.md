@@ -7,11 +7,17 @@ It’s not exhaustive, but a good representation of what I do. If you're on this
 
 This project is the most fun I've had while being paid. Responsibilities included: creating the international Rapha Rides video brief; identifying the talent and concept for the six American shoots; leading prelimary interviews; art direction; leading the edit process between the director and brand-side creatives; a lot of driving. Los Angeles is linked above, and here's [New York](https://vimeo.com/221714081), [Seattle](https://vimeo.com/226391195), [Boulder](https://vimeo.com/215321383), [San Francisco](https://vimeo.com/215821947), and [Chicago](https://vimeo.com/229344370).
 
-## Mondial Magazine
+## Rapha Cross Collection Shoots 2014, 2015 & 2016
+
+![By Andy Bokanev](https://imgur.com/0z7AAvb.png)
+
+I produced and art directed the shoots for Rapha's Cross Collection for three years, shooting a range of products with models and professional athletes.
+
+## Articles forMondial Magazine
 
 ![Mondial Magaine](https://imgur.com/Dw9MIrL.png)
 
-Articles on the history of Cyclocross (the world's greatest sport), the design of the Simpson jersey, an interview with a New Zealand merino farmer, an introduction to Rapha's Data Print, and copy for the Rapha Cycling Club insert. Short explainer of Mondial Magazine [here](https://www.itsnicethat.com/articles/rapha-mondial).
+I wrote about the history of cyclocross (the world's greatest sport), the design of the Simpson jersey, an interview with a New Zealand merino farmer, an introduction to Rapha's Data Print, and copy for the Rapha Cycling Club insert. Short explainer of Mondial Magazine [here](https://www.itsnicethat.com/articles/rapha-mondial).
 
 ## RCC 2017 Shoot x2
 
@@ -23,7 +29,7 @@ Art Director of Rapha's 2017 RCC Shoots, one in upstate [New York](https://www.r
 
 ![All the dots worth watching](https://imgur.com/U26Fcsi.png)
 
-Project leader for the creation of https://dotwatcher.cc/, the online home for bikepacking coverage, from concept to launch. My responsibilities included: briefs and creative direction of the site; establishing brand tone and style guides; managing outside resources including programmers, writers, graphic designers, and testers.
+Project leader for the creation of www.dotwatcher.cc/, the online home for bikepacking coverage, from concept to launch. My responsibilities included: briefs and creative direction of the site; establishing brand tone and style guides; managing outside resources including programmers, writers, graphic designers, and testers.
 
 ## Theatres of Cross, Rapha
 
