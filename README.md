@@ -35,7 +35,7 @@ Project leader for the creation of www.dotwatcher.cc, the online home of bikepac
 
 ![Theatres of Cross, Ben Ingham](https://imgur.com/uvRR589.png)
 
-I accompanied photographer Ben Ingham to France and Belgium, where we visited some of cyclocross's most storied and celebrated courses. The resulting exhibiton was shown at Rapha Clubhouses around the world.
+I accompanied photographer Ben Ingham to art direct the Continental sections of Rapha's Theatres of Cross feature. We visited some of cyclocross's most storied and celebrated courses. The resulting exhibiton was shown at Rapha Clubhouses around the world.
 
 ## Some other places my work has appeared
 
