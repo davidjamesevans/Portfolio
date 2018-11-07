@@ -29,7 +29,7 @@ Art Director of Rapha's 2017 RCC Shoots, one in upstate [New York](https://www.r
 
 ![All the dots worth watching](https://imgur.com/U26Fcsi.png)
 
-Project leader for the creation of www.dotwatcher.cc/, the online home for bikepacking coverage, from concept to launch. My responsibilities included: briefs and creative direction of the site; establishing brand tone and style guides; managing outside resources including programmers, writers, graphic designers, and testers.
+Project leader for the creation of www.dotwatcher.cc, the online home of bikepacking race coverage, from concept to launch. My responsibilities included: briefs and creative direction of the site; establishing brand tone and style guides; managing outside resources including programmers, writers, graphic designers, and testers.
 
 ## Theatres of Cross, Rapha
 
