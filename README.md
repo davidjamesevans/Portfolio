@@ -13,7 +13,7 @@ This project is the most fun I've had while being paid. Responsibilities include
 
 I produced and art directed the shoots for Rapha's Cross Collection for three years, shooting a range of products with models and professional athletes.
 
-## Articles forMondial Magazine
+## Articles for Mondial Magazine
 
 ![Mondial Magaine](https://imgur.com/Dw9MIrL.png)
 
